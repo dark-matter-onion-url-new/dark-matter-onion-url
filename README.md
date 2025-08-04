@@ -21,3 +21,5 @@ It is also important to know about the Dark Matter darknet mirrors. These altern
 Remember that anonymity is absolutely key when navigating these hidden spaces. Always use a VPN and utilize anonymous payment methods to safeguard your privacy and data.
 
 <a href="http://5whwnbcloidnmppwh4eklj3qe5p4iilsud3kc2igjh3rqzmz6tjjvmqd.onion"><img src="/backup/far.webp" alt="image" style="max-width: 100%;"><a>  <a href="http://5whwnbcloidnmppwh4eklj3qe5p4iilsud3kc2igjh3rqzmz6tjjvmqd.onion"><img src="/backup/module.webp" alt="image" style="max-width: 100%;"><a>
+
+Update:  08/04/2025 I'm happy to report that the link is now accessible.
