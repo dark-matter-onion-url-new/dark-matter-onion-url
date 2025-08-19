@@ -24,4 +24,6 @@ Remember that anonymity is absolutely key when navigating these hidden spaces. A
 
 
 
-Update:  13.08.2025
+
+
+Update:  19 August 2025
